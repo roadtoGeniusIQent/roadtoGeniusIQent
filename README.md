@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @roadtoGeniusIQent, but you can call me Gus
+- 👋 Hi, I’m @roadtoGeniusIQent
