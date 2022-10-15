@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @roadtoGeniusIQent
+- 👋 Hi, I’m @roadtoGeniusIQ
